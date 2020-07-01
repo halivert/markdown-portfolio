@@ -1,1 +1,9 @@
-Replace this with a list of your favorite things.
+- Vere
+  - Intangible:
+    - Ama a Yavé
+    - Inteligente
+    - Trabajadora
+  - Tangible:
+    - Su cabello
+    - Su sonrisa
+    - Sus cachetes
