@@ -1,0 +1,9 @@
+- Vere
+  - Intangible:
+    - Ama a Yavé
+    - Inteligente
+    - Trabajadora
+  - Tangible:
+    - Su cabello
+    - Su sonrisa
+    - Sus cachetes
